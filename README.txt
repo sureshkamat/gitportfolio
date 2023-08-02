@@ -1,3 +1,3 @@
-Anjali A P
+Suresh Kamat BTECH CSE
 MERN Developer-Portfolio
 
